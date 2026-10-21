@@ -6,3 +6,9 @@
 *nate  /  pebbles  —  it  /  its*
 
 ***not  affiliated  with  the  fisch  dev  team , just  a  fan  !!***
+
+----
+<details>
+  <summary>awards</summary>
+  <img width="624" height="114" alt="17926195160049146874401696901800" src="https://github.com/user-attachments/assets/510d70ae-f344-44e0-aedd-5fa0ba75bd0b" />
+</details>
