@@ -7,7 +7,7 @@
 
 ***not  affiliated  with  the  fisch  dev  team , just  a  fan  !!***.
 
-<small>*(i do not condone some things my friends do)*<small>
+<small>*(i do not condone all of the things my friends do)*<small>
 
 ----
 <details>
