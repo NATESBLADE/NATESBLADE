@@ -35,3 +35,8 @@
   
   **Dandyzworldyuri & friends**
 </details>
+
+<div class="center">
+<a href="https://www.pokemon-adoption.de">
+<img src="https://www.yatta-tempel.de/animierte/643gino.gif" style="width: 107px; height: 84px;" alt="white blade" /></a><br /></a>
+</div>
